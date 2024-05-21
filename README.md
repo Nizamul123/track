@@ -1,1 +1,1 @@
-Penelitian ini Cuma Sekedar Hoby, karena senang dengan Ilmu pengetahuan yg terbaru terutama AI (Artificial Intelligence) atau Kecerdasan Buatan , Di sela waktu luang kerja, Penulis dengan senang hati berkolaborasi yang ingin merealisasikan Prototype ini, Sekian dan Terimakasih
+Bismillah, Penelitian ini Cuma Sekedar Hoby, karena senang dengan Ilmu pengetahuan yg terbaru terutama AI (Artificial Intelligence) atau Kecerdasan Buatan , Di sela waktu luang kerja, Penulis dengan senang hati berkolaborasi yang ingin merealisasikan Prototype ini, Sekian dan Terimakasih
